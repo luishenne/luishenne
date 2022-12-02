@@ -1,0 +1,4 @@
+- 🖖🏼 Hi, I’m @luishenne
+- 👀 I’m interested in finance, coding and photography
+- 📖 I’m currently learning finance and coding :)
+- 📩 Reach me via email: Luis.Henne@gmx.de
